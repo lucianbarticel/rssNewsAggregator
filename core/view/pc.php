@@ -1,0 +1,1 @@
+Pentru a te bucura de adevarata experienta WhatsNews foloseste o platforma mobila.
